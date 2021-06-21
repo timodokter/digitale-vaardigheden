@@ -6,7 +6,7 @@ de bronnen staan in het bestand genaamd bronnen
 
 de feedback van mijn klasgenoten staat in de foto genaamd feedback, het ontwerp zelf staat in de foto genaamd ontwerp en de mappenstructuur staat in de foto genaamd mappenstructuur
 
-Ik heb 11 pagina met daarop foto's die vna google afkomen.
+Ik heb 11 pagina met daarop foto's die van google afkomen.
 
 gemaakt door: Timo Dokter
 
